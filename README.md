@@ -1,2 +1,2 @@
-# Cur
-Cursor for Windows
+# etc. 
+• ω •
